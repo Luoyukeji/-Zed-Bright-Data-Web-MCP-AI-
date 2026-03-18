@@ -6,4 +6,10 @@
 
 https://www.youtube.com/watch?v=IHaAqPL2sQc
 
+
+https://github.com/user-attachments/assets/d905d927-d6eb-4b65-8943-25f85b4a4d62
+
+
+
+
 专属25美金链接：https://www.bright.cn/blog/ai/zed-with-web-mcp/?utm_source=brand&utm_campaign=brnd-mkt_cn_csdn_luo202603&promo=brd25
